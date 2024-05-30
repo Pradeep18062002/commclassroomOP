@@ -1,3 +1,3 @@
 # commclassroomOP
 
-- PR says thankyou
+- PR says thank you Kunal bhaiya
